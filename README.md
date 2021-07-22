@@ -1,4 +1,4 @@
-### Let's Code Things! :computer:.
+### Let's Code Things! :computer:
 
 
 <div>
